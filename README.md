@@ -1,5 +1,5 @@
 # 💫 About Me:
-Ever since I was a little kid, computer engineering has been my passionate.
+
 
 
 ## 🌐 Socials:
